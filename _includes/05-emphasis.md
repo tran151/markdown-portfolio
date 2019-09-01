@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Avid *storyteller* love to read and write.  I **can** draw as well as *organize* thought-provoking ideas! 
